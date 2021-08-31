@@ -6,7 +6,6 @@
 - 👯 I’m looking to collaborate on **projects of Web Development**
 
 - 📫 How to reach me 
-- 
 - **ankitashaw601@gmail.com**
 
 
